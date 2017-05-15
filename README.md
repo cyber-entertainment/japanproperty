@@ -1,0 +1,1 @@
+# japanproperty
